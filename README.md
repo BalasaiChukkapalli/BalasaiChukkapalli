@@ -1,11 +1,4 @@
--                                        #Hi there I'm Balasai
-- 
-- 
-- 
-- 
-- 
-- 
-- 👋 Hi, I’m @BalasaiChukkapalli
+-                                        #Hi there I'm **Balasai Chukkapalli**
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on with who are willing to support me to reach my goal!!!
