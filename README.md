@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on with who are willing to support me to reach my goal!!!
 - 📫 You can reach me through chukkapallibalasai@gmail.com
 - 😄 I'm a laughaholic
-- 🤔 Thinking to have a girlfriend or not 🙄
 - 🎥 Movielover 
 - 🅰️sk me about...🅰️nything 
 - 🙂 Pronoun: He/Him
